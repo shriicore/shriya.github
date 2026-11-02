@@ -92,7 +92,6 @@ I am a passionate UI/UX Designer focused on creating intuitive and impactful use
 ## 📫 Connect With Me
 
 - 📧 Email: **nshriya31@gmail.com**
-- 🎨 Behance: https://www.behance.net/shriidesigns
 
 ---
 
